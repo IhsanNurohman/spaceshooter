@@ -1,2 +1,2 @@
-follow ig @RyuEx Dev
-by ihsan nurohman
+follow ig rryuex__
+by ihsan nurohman_
